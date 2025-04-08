@@ -1,4 +1,4 @@
-#Fiberglass Yarn Market Future Scope Competitive Analysis & Revenue by Fact MR
+# Fiberglass Yarn Market Future Scope Competitive Analysis & Revenue by Fact MR
 
 The global fiberglass yarn market, valued at USD 3.5 billion in 2022, is projected to grow at a CAGR of 4.9%, reaching USD 5.68 billion by 2032.
 
